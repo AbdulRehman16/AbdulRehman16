@@ -1,4 +1,4 @@
-Hi, I'm Abdul Rehman Mustafa, a Tech enthusiast, Entreprenuer and a Community Builder from Pakistan PK,
+Hi, I'm Abdul Rehman Mustafa, a Tech enthusiast, entrepreneur and a Community Builder from Pakistan PK,
 
 Talking about My Personal Stuffs:
 
